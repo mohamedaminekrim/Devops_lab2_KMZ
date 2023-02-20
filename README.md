@@ -1,3 +1,1 @@
-# Devops_lab2_KMZ
-
-## Change 
+# be stronger than ur strongest excuse
